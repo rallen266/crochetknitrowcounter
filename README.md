@@ -1,4 +1,4 @@
-# crochetknitrowcounter
+# Privacy Policy version 1.0 for the Crochet & Knit Row Counter IOS app
 
 Privacy Policy version 1.0 for the Crochet & Knit Row Counter IOS app
 
